@@ -79,22 +79,12 @@ Medications called Gonadotropins (Gonal-F, Follistim, and Menopur) may have side
 2) 如果你不是坚决丁克到底的女性，请在定期**体检中加入激素六项+AMH值的检测**，通过检测自己身体的生物钟来估算自己在生育任务上剩余的runway，才能做出最利于自己的规划。
 
 
+![Screenshot 2023-10-07 at 4 49 14 PM](https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/1ce98820-007c-4bf6-8c4f-a9253fc52a7c)
 
-<p id="gdcalert1" ><span style="color: red; font-weight: bold">>>>>>  gd2md-html alert: inline image link here (to images/image1.png). Store image on your image server and adjust path/filename/extension if necessary. </span><br>(<a href="#">Back to top</a>)(<a href="#gdcalert2">Next alert</a>)<br><span style="color: red; font-weight: bold">>>>>> </span></p>
-
-
-![alt_text](images/image1.png "image_tooltip")
+![Screenshot 2023-10-07 at 4 49 42 PM](https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/fa4d0cdf-fc29-4ed2-930a-db48f0fcd351)
 
 
-
-
-<p id="gdcalert2" ><span style="color: red; font-weight: bold">>>>>>  gd2md-html alert: inline image link here (to images/image2.png). Store image on your image server and adjust path/filename/extension if necessary. </span><br>(<a href="#">Back to top</a>)(<a href="#gdcalert3">Next alert</a>)<br><span style="color: red; font-weight: bold">>>>>> </span></p>
-
-
-![alt_text](images/image2.png "image_tooltip")
-
-
-**成本，**因你所在的地域不同，在加州代孕的话，一个小朋友大概是US$150k - 180k。这里面的成本分配大概是（表格估价可能稍微偏高）：
+**成本，**因你所在的地域不同，在加州代孕的话，一个小朋友大概是US$150k - 180k。一个示范的成本分配如下（表格估价可能稍微偏高）：
 
 
 <table>
@@ -140,21 +130,10 @@ Medications called Gonadotropins (Gonal-F, Follistim, and Menopur) may have side
   </tr>
 </table>
 
+![Screenshot 2023-10-07 at 4 50 14 PM](https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/874feb1c-b33f-4ee6-a7b3-a77beb606bcd)
 
+![Screenshot 2023-10-07 at 4 50 22 PM](https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/22d35f99-f477-4125-b061-0e32c03bb84a)
 
-
-<p id="gdcalert3" ><span style="color: red; font-weight: bold">>>>>>  gd2md-html alert: inline image link here (to images/image3.png). Store image on your image server and adjust path/filename/extension if necessary. </span><br>(<a href="#">Back to top</a>)(<a href="#gdcalert4">Next alert</a>)<br><span style="color: red; font-weight: bold">>>>>> </span></p>
-
-
-![alt_text](images/image3.png "image_tooltip")
-
-
-
-
-<p id="gdcalert4" ><span style="color: red; font-weight: bold">>>>>>  gd2md-html alert: inline image link here (to images/image4.png). Store image on your image server and adjust path/filename/extension if necessary. </span><br>(<a href="#">Back to top</a>)(<a href="#gdcalert5">Next alert</a>)<br><span style="color: red; font-weight: bold">>>>>> </span></p>
-
-
-![alt_text](images/image4.png "image_tooltip")
 
 
 
@@ -167,12 +146,8 @@ Medications called Gonadotropins (Gonal-F, Follistim, and Menopur) may have side
 
 建议男女双方（如有）先完成前置体检，多囊卵巢综合症、激素水平异常、HPV感染、衣原体感染都是常见的问题，必须先治疗，否则可能会耽误后续程序的进度。
 
+![Screenshot 2023-10-07 at 4 51 15 PM](https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/f5d5c2b6-e711-4b82-a544-7edc661392ef)
 
-
-<p id="gdcalert5" ><span style="color: red; font-weight: bold">>>>>>  gd2md-html alert: inline image link here (to images/image5.jpg). Store image on your image server and adjust path/filename/extension if necessary. </span><br>(<a href="#">Back to top</a>)(<a href="#gdcalert6">Next alert</a>)<br><span style="color: red; font-weight: bold">>>>>> </span></p>
-
-
-![alt_text](images/image5.jpg "image_tooltip")
 
 
 
@@ -240,12 +215,8 @@ Medications called Gonadotropins (Gonal-F, Follistim, and Menopur) may have side
 
 医疗方案基本上为时2～3周，以月经来潮的第1～3天作为起始日。
 
+![Screenshot 2023-10-07 at 4 52 42 PM](https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/4d87eb45-5e69-4cb4-94f5-a58d8af543af)
 
-
-<p id="gdcalert6" ><span style="color: red; font-weight: bold">>>>>>  gd2md-html alert: inline image link here (to images/image6.png). Store image on your image server and adjust path/filename/extension if necessary. </span><br>(<a href="#">Back to top</a>)(<a href="#gdcalert7">Next alert</a>)<br><span style="color: red; font-weight: bold">>>>>> </span></p>
-
-
-![alt_text](images/image6.png "image_tooltip")
 
 
 基本上就是每天给自己肚子上扎针，护士都会较为详细的培训针如何扎，也不太难，别担心。过程中核心监控的激素指标是 AMH，这个指标可以飙升到日常的100x+，很多女性也会因为这个激素变化，而带来一定的情绪影响。男同胞在这个阶段，一定要做到打不还手骂不还口。
@@ -336,12 +307,10 @@ Again，仅做为自身体验，供各位参考，并非普世公式，而且var
 
 你的中介会给你推荐一些代母简历，找合眼缘的，有你觉得好的代母，请中介帮忙安排视频沟通。但请你理解，大部分代母，选择成为代母的核心动力，是财务收入。因此她们会希望每次面试都顺利成功。找工作面试多了不成功，会打击自信心，谁都一样。和找工作类似，你也很难在一个20-30分钟的远程视频里，了解你的代母的一切，她的经历，她的动机，她如何成为一个好母亲。而且，实际来说，哪怕在合同里再怎么规定不能抽烟喝酒烫头，如果你的代母就是有一天偷偷喝了一小口酒，你也没办法知道。当然，也有和代母住在一起等做法，但那些方案的成本更高，效果也未必好。
 
+但同时，由于代母的收费机制是按照里程碑收费，所以代母也有很强的动力确保怀孕期间一切顺利。
 
+![Screenshot 2023-10-07 at 4 53 33 PM](https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/02ae5c01-3671-4fb8-9f32-4fbc5726803e)
 
-<p id="gdcalert7" ><span style="color: red; font-weight: bold">>>>>>  gd2md-html alert: inline image link here (to images/image7.jpg). Store image on your image server and adjust path/filename/extension if necessary. </span><br>(<a href="#">Back to top</a>)(<a href="#gdcalert8">Next alert</a>)<br><span style="color: red; font-weight: bold">>>>>> </span></p>
-
-
-![alt_text](images/image7.jpg "image_tooltip")
 
 
 个人而言，我在沟通代母时，会比较看重这几点：
@@ -397,11 +366,8 @@ Again，仅做为自身体验，供各位参考，并非普世公式，而且var
 4. 3里的材料提交后，一般而言3-4周就可以拿到。所以整个流程快的话5周，慢的话7周
 
 
+![Screenshot 2023-10-07 at 4 54 07 PM](https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/915d7895-703c-42ab-a9ea-b6180a2a0f82)
 
-<p id="gdcalert8" ><span style="color: red; font-weight: bold">>>>>>  gd2md-html alert: inline image link here (to images/image8.jpg). Store image on your image server and adjust path/filename/extension if necessary. </span><br>(<a href="#">Back to top</a>)(<a href="#gdcalert9">Next alert</a>)<br><span style="color: red; font-weight: bold">>>>>> </span></p>
-
-
-![alt_text](images/image8.jpg "image_tooltip")
 
 
 护照/户口问题：

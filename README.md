@@ -130,10 +130,13 @@ Medications called Gonadotropins (Gonal-F, Follistim, and Menopur) may have side
   </tr>
 </table>
 
-!(https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/874feb1c-b33f-4ee6-a7b3-a77beb606bcd| width = 10)
 
 
-![Screenshot 2023-10-07 at 4 50 22 PM](https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/22d35f99-f477-4125-b061-0e32c03bb84a)
+<img src=https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/874feb1c-b33f-4ee6-a7b3-a77beb606bcd width="300">
+
+<img src=https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/22d35f99-f477-4125-b061-0e32c03bb84a width="300">
+
+
 
 
 

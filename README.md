@@ -74,7 +74,7 @@ Medications called Gonadotropins (Gonal-F, Follistim, and Menopur) may have side
 
 对于每个特定个体而言，卵泡在时间上是衰减的。每位女性在35岁的基础卵泡数目，是少于30岁的。30岁的卵泡也少于25岁。从这个角度而言，
 
-**1) 如果你打算代孕，越早开始越好**。越往后，女性的基础卵泡数目是越低的。而基础卵泡数，是一切流程的起点。每个人的生物钟可能有所差异，35岁之后女性的卵泡数量开始下降，而且男女双方生殖细胞的DNA异常率会急剧上升，因此结合出健康胚胎的概率会大大降低。以上两个原因就是为什么人人常说“35岁之后生育力断崖式下跌”。
+1) **如果你打算代孕，越早开始越好**。越往后，女性的基础卵泡数目是越低的。而基础卵泡数，是一切流程的起点。每个人的生物钟可能有所差异，35岁之后女性的卵泡数量开始下降，而且男女双方生殖细胞的DNA异常率会急剧上升，因此结合出健康胚胎的概率会大大降低。以上两个原因就是为什么人人常说“35岁之后生育力断崖式下跌”。
 
 2) 如果你不是坚决丁克到底的女性，请在定期**体检中加入激素六项+AMH值的检测**，通过检测自己身体的生物钟来估算自己在生育任务上剩余的runway，才能做出最利于自己的规划。
 
@@ -84,7 +84,7 @@ Medications called Gonadotropins (Gonal-F, Follistim, and Menopur) may have side
 ![Screenshot 2023-10-07 at 4 49 42 PM](https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/fa4d0cdf-fc29-4ed2-930a-db48f0fcd351)
 
 
-**成本，**因你所在的地域不同，在加州代孕的话，一个小朋友大概是US$150k - 180k。一个示范的成本分配如下（表格估价可能稍微偏高）：
+**成本**: 因你所在的地域不同，在加州代孕的话，一个小朋友大概是US$150k - 180k。一个示范的成本分配如下（表格估价可能稍微偏高）：
 
 
 <table>
@@ -130,7 +130,8 @@ Medications called Gonadotropins (Gonal-F, Follistim, and Menopur) may have side
   </tr>
 </table>
 
-![Screenshot 2023-10-07 at 4 50 14 PM](https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/874feb1c-b33f-4ee6-a7b3-a77beb606bcd)
+!(https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/874feb1c-b33f-4ee6-a7b3-a77beb606bcd| width = 10)
+
 
 ![Screenshot 2023-10-07 at 4 50 22 PM](https://github.com/6m1w/Project-BabyX-Surrogacy/assets/117615110/22d35f99-f477-4125-b061-0e32c03bb84a)
 

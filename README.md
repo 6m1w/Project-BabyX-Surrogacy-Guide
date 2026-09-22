@@ -1,3 +1,7 @@
+<p align="center">
+  <strong>简体中文</strong> | <a href="README.en.md">English</a>
+</p>
+
 # 美国代孕指南 / A guide to surrogacy in the US. Version 2025
 
  * [Introduction](#introduction)
